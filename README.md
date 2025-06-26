@@ -78,11 +78,7 @@ Covering the period from **1970 to 2021**, the analysis spans a diverse set of w
 
 ## 📬 Contact
 
-For feedback, collaboration, or academic references, feel free to connect:
-
-**Abhishek Verma**  
-🔗 LinkedIn: [Your LinkedIn URL]  
-📧 Email: [Your Email]  
+Feel free to connect or reach out via LinkedIn for feedback or collaboration opportunities.
 
 ---
 
